@@ -13,6 +13,6 @@
 
 **✅Facebook: https://www.facebook.com/ikhtiyorovalibek/**
 
-**✅Telegram: https://t.me/alibek_akmalovich**
+**✅Telegram: https://t.me/ikhtiyorov_alibek**
 
 **✅YouTube: https://www.youtube.com/@ikhtiyorov_alibek**
